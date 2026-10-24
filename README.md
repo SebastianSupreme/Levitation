@@ -1,1 +1,2 @@
-https://mirror.xyz/sebastiansupreme.eth/nHblRpb5jpnRiisgVTRMtcj8NZah2csqEPHWuy6V1kY
+https://medium.com/@sebastiansupreme/electromagnetic-levitation-cb99d06a5bf8
+https://paragraph.com/@sebastiansupreme/electromagnetic-levitation
